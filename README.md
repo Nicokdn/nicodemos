@@ -8,7 +8,6 @@ Meu nome é nicole mello
 
 00001114368003sp@al.educacao.sp.gov.br
 
-tik tok😼@sapato_do_malbear
 
 
 ![malbear dançando](https://i.pinimg.com/originals/cc/fc/12/ccfc126055a1005421d5aa7a46acf303.gif)
